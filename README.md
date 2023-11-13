@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ErwinAmMeer
-- 👀 I’m interested in optical sciences, X-rays technology, data analysis, photography, traveling, filming, etc.
+- 👀 I’m interested in optical sciences, X-rays technology, data analysis, photography, traveling, filming, kungfu, firearms etc.
 - 🌱 I’m currently learning optical semi-conductor, data analysis, HRXRD, etc.
 - 💞️ I’m looking to collaborate on optical sciences.
 - 📫 How to reach me email: wintersrambo@yahoo.com
